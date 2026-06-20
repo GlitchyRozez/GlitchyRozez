@@ -1,4 +1,7 @@
-## Hi there 👋
+## Hello! Welcome to my profile My name Is Glitch!
+I'm 20 y/o Exstream fan of Mafioso
+Feel free the cuddle me or hide I do not mind! afk most of the time lol
+<img width="736" height="807" alt="image" src="https://github.com/user-attachments/assets/ff76d07d-0784-4b22-80af-28a4815619e5" />
 
 <!--
 **GlitchyRozez/GlitchyRozez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
