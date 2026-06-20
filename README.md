@@ -1,5 +1,5 @@
 - Hello! Welcome to my profile My name Is Glitch!
-- I'm 20 y/o Exstream fan of Mafioso
+- I'm 20 y/o Big fan of Mafioso
 - I'm Taken!
 - Feel free the cuddle me or hide I do not mind! afk most of the time lol
 <img width="377" height="454" alt="Untitled" src="https://github.com/user-attachments/assets/55bf04ca-402b-483c-89a7-f810c760e8de" />
