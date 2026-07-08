@@ -1,5 +1,5 @@
 <img width="734" height="245" alt="image" src="https://github.com/user-attachments/assets/9280945f-3fe1-463e-a822-7d65dd423c44" />
-
+Straw page:https://glitchyrozez.straw.page  
 My pfp is my art  
 ★ Name: GlitchyRozez  
 ★ Nickname/Alias:Glitch  
