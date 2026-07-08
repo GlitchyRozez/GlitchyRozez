@@ -1,8 +1,31 @@
-Straw: https://glitchyrozez.straw.page
-- Hello! Welcome to my profile My name Is Glitch!
-- I'm 20 y/o Big fan of Mafioso
-- I'm Taken!
-- Feel free the cuddle me or hide I do not mind! afk most of the time lol
+<img width="736" height="278" alt="image" src="https://github.com/user-attachments/assets/b462fe6c-07df-484a-b136-70c82aebdf2c" />
+
+
+★ Name: GlitchyRozez  
+★ Nickname/Alias:Glitch  
+★ Age:20  
+★ Gender/Pronouns:She/they (For now, normally he/they)  
+★ Species/Race:Mixed  
+  
+ Appearance  
+  
+★ Height:5'3  
+★ Build:Cubby  
+★ Skin Tone:Mixed  
+★ Eye Color:Purple  
+★ Hair Color/Style:Black and purple, Half updo  
+★ Distinguishing Features (scars, tattoos, etc.):Rose tattoo on left forarm  
+★ Clothing Style:formal  
+  
+Personality  
+  
+★ Core Traits (e.g., ambitious, kind, sarcastic, etc.):Sarcastic,Sensitive,Kind  
+★ Strengths:Drawing  
+★ Weaknesses:You don't needa know that  
+★ Likes:HH+,DW,AvA,Forsaken,Fnaf,Solarballs,Alien stage, making friends
+★ Dislikes:Rude people,Yelling and arguing, Racial stuff, Homophobia I have really bad Anxiety around anyone so please if i seem to be getting nervous Don’t poke me about it-  
+★ Hobbies/Interests:Digital art, Painting,Building in Minecraft  
+★ Don't ask me to be your supporter please. 
 <img width="377" height="454" alt="Untitled" src="https://github.com/user-attachments/assets/55bf04ca-402b-483c-89a7-f810c760e8de" />
 
 <!--
