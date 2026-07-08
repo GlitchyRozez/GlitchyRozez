@@ -22,7 +22,7 @@ Personality
 ★ Core Traits (e.g., ambitious, kind, sarcastic, etc.):Sarcastic,Sensitive,Kind  
 ★ Strengths:Drawing  
 ★ Weaknesses:You don't needa know that  
-★ Likes:HH+,DW,AvA,Forsaken,Fnaf,Solarballs,Alien stage, making friends
+★ Likes:HH+,DW,AvA,Forsaken,Fnaf,Solarballs,Alien stage, making friends  
 ★ Dislikes:Rude people,Yelling and arguing, Racial stuff, Homophobia I have really bad Anxiety around anyone so please if i seem to be getting nervous Don’t poke me about it-  
 ★ Hobbies/Interests:Digital art, Painting,Building in Minecraft  
 ★ Don't ask me to be your supporter please. 
