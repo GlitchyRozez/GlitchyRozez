@@ -26,7 +26,6 @@ Personality
 ★ Dislikes:Rude people,Yelling and arguing, Racial stuff, Homophobia I have really bad Anxiety around anyone so please if i seem to be getting nervous Don’t poke me about it-  
 ★ Hobbies/Interests:Digital art, Painting,Building in Minecraft  
 ★ Don't ask me to be your supporter please. 
-<img width="377" height="454" alt="Untitled" src="https://github.com/user-attachments/assets/55bf04ca-402b-483c-89a7-f810c760e8de" />
 
 <!--
 **GlitchyRozez/GlitchyRozez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
