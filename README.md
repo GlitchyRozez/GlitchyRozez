@@ -1,3 +1,4 @@
+Straw: https://glitchyrozez.straw.page
 - Hello! Welcome to my profile My name Is Glitch!
 - I'm 20 y/o Big fan of Mafioso
 - I'm Taken!
